@@ -1,0 +1,2 @@
+# premium-leather-awl-001-leather-awl-forging-stitch-h
+Tired of scattered notes and forgotten stitch patterns? The Leather Awl Forging &amp; Stitch Hole Craft Hub turns your Notion workspace into a precision workshop for every awl and hole.  This template consolidates your entire leather-awl workflow—from forging logs to stitch hole layouts—into one organized hub. No more lost measurements or inconsistent
